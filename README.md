@@ -31,6 +31,6 @@
 ## TV Shows and Movies
 
 
-[Lookmovie](lookmovie.io)
+[Lookmovie](https://lookmovie.io)
 
 [CMoviesHD (tons of ads)](https://www2.cmovies.ac/)
