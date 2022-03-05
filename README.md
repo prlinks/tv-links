@@ -35,4 +35,4 @@
 
 [CMoviesHD (tons of ads)](https://www2.cmovies.ac/)
 
-[kdramahood (korean dramas](https://kdramahood.com/)
+[kdramahood (korean dramas)](https://kdramahood.com/)
