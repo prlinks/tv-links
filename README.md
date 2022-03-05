@@ -34,3 +34,5 @@
 [Lookmovie](https://lookmovie.io)
 
 [CMoviesHD (tons of ads)](https://www2.cmovies.ac/)
+
+[kdramahood (korean dramas](https://kdramahood.com/)
