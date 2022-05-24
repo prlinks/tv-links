@@ -30,6 +30,7 @@
 
 ## TV Shows and Movies
 
+[Live TV](https://ustvgo.tv/cnn-live-streaming-free/)
 
 [Lookmovie](https://lookmovie2.to/)
 
