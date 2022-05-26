@@ -1,5 +1,19 @@
 ## TV Links
 
+## Quick Access
+
+[All MLB Games](https://www.streameast.live/mlb-streams/)
+
+[All NBA Games](https://www.streameast.live/nba-streams/)
+
+[All NFL Games](https://www.streameast.live/nfl-streams/)
+
+[Live TV (CNN, etc.)](https://ustvgo.tv/cnn-live-streaming-free/)
+
+[ESPN](http://yk.freestreams-live1.com/espn-live01/)
+
+[Other Stuff](http://buffstream.io/tv-streams-live1)
+
 ## Sports
 
 
