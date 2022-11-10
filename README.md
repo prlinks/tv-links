@@ -50,7 +50,7 @@
 
 [Lookmovie](https://lookmovie2.to/)
 
-[CMoviesHD (tons of ads)](https://www2.cmovies.ac/)
+[soap2day](https://soap2day.to/)
 
 [kdramahood (korean dramas)](https://kdramahood.com/)
 
