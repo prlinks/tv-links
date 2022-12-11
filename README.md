@@ -8,9 +8,9 @@
 
 [All NFL Games](https://www.streameast.live/nfl-streams/)
 
-[Live TV (CNN, etc.)](https://ustvgo.tv/cnn-live-streaming-free/)
+[Live TV (CNN, not sure if it's working anymore](https://ustvgo.tv/cnn-live-streaming-free/)
 
-[ESPN](http://yk.freestreams-live1.com/espn-live01/)
+[Sports Channels](https://buffstream.io/tv-streams-reddit)
 
 [TVB](http://xdrama.me/)
 
